@@ -7,3 +7,6 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Vounter yg di terima:
 * Oon M Rafly Suratno, [oo.or.id](https://oo.or.id).
+* Gilang Ramadhan, [linkedin](https://www.linkedin.com/in/gilang-adhan/).
+  
+
